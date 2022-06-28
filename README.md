@@ -1,4 +1,4 @@
-### Oi!!! 👋 Me sou o Clebson Melo
+### Oi!!! 👋 Sou o Clebson Melo
 
 
 
